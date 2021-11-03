@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @millygoose
+- 👋 Hi, I’m Milly! I'm 18 and I use all pronouns!
 - 👀 I’m interested in game development
 - 🌱 I’m currently learning c#
 - 💞️ I’m looking to collaborate on a game I'm working on called Vincent Is Calling (hmu for more info!)
